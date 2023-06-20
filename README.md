@@ -1,4 +1,4 @@
-# Live Libk: https://cryptobuddy5479.web.app/
+# Live Link: https://cryptobuddy5479.web.app/
 
 # CryptoBuddy
 
